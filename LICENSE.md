@@ -1,4 +1,4 @@
-# 
+# Enhance Shotcut for PC | Shotcut for Windows with new Shotcut for PC | Shotcut for Windows Filter | motion-tracking + real-time-preview, the #1 filter. Includes motion-tracking
 
 
 
